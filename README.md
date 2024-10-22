@@ -1,4 +1,4 @@
-## New Kawasaki woman courier！！ 👋
+## New Kawasaki girl courier！！ 👋
 
 <!--
 **JTstudyhappy/JTstudyhappy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
